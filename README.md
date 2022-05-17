@@ -1,0 +1,1 @@
+# tyt-matematik-pdf-2022-ogrenci-32
